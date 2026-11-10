@@ -4,14 +4,14 @@
 <br> <br>
 ${\color{#6a9e71}DON'T}$ ${\color{#5f8f40}YOU}$ ${\color{#005900}CHECK}$ ${\color{#528d48}THE}$ ${\color{#95d38a}WORK}$ ${\color{#22521c}OUTSIDE}$ .ᐟ
 <br><img src="https://64.media.tumblr.com/d997a65d41cbc14faf8098abfb872608/18503e825059beff-4f/s2048x3072/d4dbca09c49c67efca903d86946d6442ffc74b2f.pnj" width=470px />
-<br>${\color{#639d6d} Rhys}$ ${\color{#392b31}/}$ ${\color{#6b3857}Kerry}$ ${\color{#c8aece}╏}$ ${\color{#5f4853}He}$ ${\color{#392b31}/}$ ${\color{#5f4853}Him}$ ${\color{#c8aece}╏}$ ${\color{#6b3857}Twenty-Two}$.
-<br>${\color{#a15a8d}British}$ ${\color{#ead2dc}+}$ ${\color{#a15a8d}Irish}$ ${\color{#c8aece}lurker}$ ${\color{#ead2dc}on}$ ${\color{#ead2dc}this}$ ${\color{#a15a8d}hellsite}$.
-${\color{#c8aece}Often}$ ${\color{#ead2dc}with}$ ${\color{#a15a8d}friends}$.
-<br>${\color{#ead2dc}Feel}$ ${\color{#ead2dc}free}$ ${\color{#ead2dc}to}$ ${\color{#a15a8d}C+H}$. ${\color{#ead2dc}I'm}$ ${\color{#6b3857}offtab}$, ${\color{#a15a8d}most}$ ${\color{#ead2dc}of}$ ${\color{#ead2dc}the}$ ${\color{#ead2dc}time}$. ${\color{#a15a8d}♯Rivals}$
+<br>${\color{#639d6d} Rhys}$ ${\color{#005a01}/}$ ${\color{#94d18a}Kerry}$ ${\color{#4f8b42}╏}$ ${\color{#2a5626}He}$ ${\color{#496727}/}$ ${\color{#508d4d}Him}$ ${\color{#5f9862}╏}$ ${\color{#1f541a}Twenty-Two}$.
+<br>${\color{#3c6e4f}British}$ ${\color{#166810}+}$ ${\color{#93d08a}Irish}$ ${\color{#6d9f71}lurker}$ ${\color{#518d44}on}$ ${\color{#70a074}this}$ ${\color{#005900}hellsite}$.
+${\color{#047432}Often}$ ${\color{#528d45}with}$ ${\color{#619467}friends}$.
+<br>${\color{#96d18b}Feel}$ ${\color{#1f541a}free}$ ${\color{#87bd81}to}$ ${\color{#639765}C+H}$. ${\color{#4e8a41}I'm}$ ${\color{#6ea676}offtab}$, ${\color{#337929}most}$ ${\color{#2a5a23}of}$ ${\color{#005900}the}$ ${\color{#518d44}time}$. ${\color{#045c00}♯Rivals}$
 <br><img src="https://64.media.tumblr.com/506e037b829b228f838f240c3a576c23/90550969ea0a3b23-b9/s2048x3072/74803aadee32cdc0772a790a134b9d32a4f32392.pnj" width=470px />
 <br>
-                 ${\color{#6b3857}BAMF-LINKS}$ ${\color{#ead2dc}.ᐟ}$
-<br>˗ˏˋ <a href="https://artfight.net/~hypericns">ArtFight</a>${\color{#a15a8d}╏}$<a href="https://rentry.co/EURODYNED">Rentry</a> ${\color{#a15a8d}╏}$ <a href="https://rhy5-w1nz.straw.page/">Strawpage</a> ${\color{#a15a8d}╏}$ <a href="https://patreon.com/EURODYNES">Patreon</a> ${\color{#a15a8d}╏}$ <a href="https://NlGHTCRAWLER.atabook.org">Atabook</a> ˎˊ˗
+                 ${\color{#1f541a}BAMF-LINKS}$ ${\color{#95b583}.ᐟ}$
+<br>˗ˏˋ <a href="https://artfight.net/~hypericns">ArtFight</a>${\color{#6d8e60}╏}$<a href="https://rentry.co/EURODYNED">Rentry</a> ${\color{#649344}╏}$ <a href="https://rhy5-w1nz.straw.page/">Strawpage</a> ${\color{#1e531d}╏}$ <a href="https://patreon.com/EURODYNES">Patreon</a> ${\color{#699f6c}╏}$ <a href="https://NlGHTCRAWLER.atabook.org">Atabook</a> ˎˊ˗
 <br><img src="https://64.media.tumblr.com/d997a65d41cbc14faf8098abfb872608/18503e825059beff-4f/s2048x3072/d4dbca09c49c67efca903d86946d6442ffc74b2f.pnj" width=470px />
 <br> 
-                 ${\color{#7c3c61}I}$ ${\color{#ead2dc}CAN}$ ${\color{#ead2dc}MAKE}$ ${\color{#7c3c61}YOU}$ ${\color{#ead2dc}FEEL}$ ${\color{#7c3c61}ALL}$ ${\color{#7c3c61}RIGHT}$ .ᐟ
+                 ${\color{#557231}I}$ ${\color{#69a270}CAN}$ ${\color{#055c01}MAKE}$ ${\color{#005900}YOU}$ ${\color{#4f8754}FEEL}$ ${\color{#67a267}ALL}$ ${\color{#508c43}RIGHT}$ .ᐟ
