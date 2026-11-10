@@ -1,5 +1,5 @@
 <p></p>
-<img align="left" src="https://i.ibb.co/b5RHd0YR/image-2026-11-09-181755346.png"width="300px" />
+<img align="left" src="https://64.media.tumblr.com/f44a6187965a71de7132276572092d0b/e77618a5ebe3014d-dd/s1280x1920/ce41345414fb7a7170a4666ab607c3875450e6a9.pnj"width="300px" />
 
 <br> <br>
 ${\color{#ead2dc}DON'T}$ ${\color{#7c3c61}YOU}$ ${\color{#ead2dc}CHECK}$ ${\color{#ead2dc}THE}$ ${\color{#7c3c61}WORK}$ ${\color{#ead2dc}OUTSIDE}$ .ᐟ
